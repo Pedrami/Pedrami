@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Pedrami
-- 👀 I’m interested in Programming and Technology
+- 👀 I’m interested in Programming, Technology, Finance, Crypto and Blockchain.
 - 📫 How to reach me pedram@mathquantphi.com
 
 <!---
